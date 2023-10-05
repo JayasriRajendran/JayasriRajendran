@@ -1,4 +1,4 @@
-I love programming, reading, writing and speaking.
+I love programming
 
 As a engineer, I enjoy using my obsessive attention to detail, my unequivocal love for making things that change the world.
 
